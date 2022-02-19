@@ -1,6 +1,5 @@
-# Hello, I am cqg.
-## Alternatively known as cereal.
+# Hello, I am Alterstat.
+## Alternatively known as AlSt.
 ### Social Links: 
-#### YouTube: [cqg](https://youtube.com/c/cqgbutbetter)
-#### Discord: [cqg#8825](https://discord.gg/nBxFswKa6G)
-#### Twitter: [@cqg_cqg](https://twitter.com/cqg_cqg)
+#### YouTube: [AlSt](https://www.youtube.com/channel/UCGXlRUyDkAau2dJfRth7NuA)
+#### Discord: [AlSt#8825](https://discord.gg/2haYwmyExC)
