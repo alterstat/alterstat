@@ -1,5 +1,5 @@
-# Hello, I am Alterstat.
-## Alternatively known as AlSt.
+# Hello, I am gqc.
+## Formerly known as cqg & alterstat.
 ### Social Links: 
-#### YouTube: [AlSt](https://www.youtube.com/channel/UCGXlRUyDkAau2dJfRth7NuA)
-#### Discord: [AlSt#8825](https://discord.gg/2haYwmyExC)
+#### YouTube: [gqc](https://www.youtube.com/@gqc_)
+#### Discord: [gqc#4597](https://discord.gg/2haYwmyExC)
